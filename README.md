@@ -1,2 +1,2 @@
-# practicaUno-Ram-rez_Ju-rez_Arturo_5im9-
+# practicaUno-Ramirez_Juarez_Arturo_5IM9
 Prueba Github
